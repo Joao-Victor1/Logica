@@ -1,0 +1,1 @@
+Tarefa de lógica
